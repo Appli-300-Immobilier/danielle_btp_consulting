@@ -4,15 +4,15 @@
 - **Company Name:** Danielle Btp Consulting
 - **Directory:** danielle_btp_consulting
 - **Address/Contact:** 
-  - Plans de b�timents _ Maquettes 3D tr�s r�alistes _ �tude de projet ????
+  - Plans de bétiments _ Maquettes 3D trés réalistes _ étude de projet ????
   - Formation Express ?
   - Pubs rentables ?
-  - Contactez-nous d�s � pr�sent ????
+  - Contactez-nous dés é présent ????
   - +237 652 212 341
   - 
-  - Page � Architecte (Design)
+  - Page é Architecte (Design)
   - 
-  - Yaound�, Cameroon
+  - Yaoundé, Cameroon
   - 
   - +237 6 91 00 75 14
   - 
